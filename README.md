@@ -5,3 +5,5 @@ Woke up early, did some work, showered and went to lhs early for getting schedul
 THIS TURN UP SONG IS SO GOOD [KAY](https://open.spotify.com/track/5ZSl6gDoV6bPPxzmLeneV9?si=09f0dcc2e82e49ce)
 
 Now, I'm home and need to do more work
+
+Ima start try to work even when I don't feel like. Listening to emotions instead of being logical is bad. 
